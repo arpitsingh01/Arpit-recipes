@@ -1,1 +1,1 @@
-# odin-recipes
+Hi, I’m Arpit, a passionate chef with a love for crafting flavorful, comforting dishes that bring people together. From traditional classics to creative fusions, I believe every plate should tell a story.
